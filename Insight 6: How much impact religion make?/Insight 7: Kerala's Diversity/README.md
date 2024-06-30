@@ -1,0 +1,1 @@
+ In Kerala, the Congress secured 14 out of 20 seats. The remaining seats were distributed among smaller parties, including the Indian Union Muslim League (IUML) and the Communist Party of India (Marxist) (CPI(M))​
