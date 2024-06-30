@@ -1,0 +1,1 @@
+Regional parties like the Samajwadi Party (SP), All India Trinamool Congress (AITC), and Dravida Munnetra Kazhagam (DMK) secured 37, 29, and 22 seats respectively, highlighting the significant role regional parties continue to play in Indian politics.
